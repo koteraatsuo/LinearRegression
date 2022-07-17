@@ -1,0 +1,1 @@
+https://di-acc2.com/programming/python/12253/
